@@ -1,3 +1,3 @@
-## Hello there! 👋
+## Hola :wave:
 
-Welcome to my profile! I'm a person who likes to learn anything and also sometime I can learn it quickly. I know a few programming language and sometimes using it for some of my project.
+Thank you for stopping by! I am Masami and I love to learn anything and sometimes I can understand quickly. I knew a few programming language and sometimes using it to kill my free time.
