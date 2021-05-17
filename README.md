@@ -4,7 +4,5 @@ Thank you for stopping by! I am Masami and I love to learn anything and sometime
 
 ## Contact :envelope:
 
-* [@masamiakzk13](https://twitter.com/masamiakzk13/)
+* [@nikkozuki](https://twitter.com/nikkozuki/)
 * [u/otakoos](https://reddit.com/u/otakoos/)
-* [arxist](https://arxist.com/masami)
-
