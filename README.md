@@ -6,4 +6,3 @@ Thank you for stopping by! I am Masami and I love to learn anything and sometime
 
 * [@nikkozuki](https://twitter.com/nikkozuki/)
 * [u/otakoos](https://reddit.com/u/otakoos/)
-
