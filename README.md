@@ -4,5 +4,5 @@ Thank you for stopping by! I am Masami and I love to learn anything and sometime
 
 ## Contact :envelope:
 
-* [@nikkozuki](https://twitter.com/nikkozuki/)
+* [@nikkozu](https://twitter.com/nikkozu/)
 * [u/otakoos](https://reddit.com/u/otakoos/)
