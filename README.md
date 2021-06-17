@@ -7,7 +7,7 @@ Thank you for stopping by! I am Masami and I love to learn anything and sometime
 * [@nikkozu](https://twitter.com/nikkozu/)
 * [u/otakoos](https://reddit.com/u/otakoos/)
 
-<a href="https://arxist.com/masami">
+<a href="https://arxist.com/masami" target="_blank">
    <img alt="Arxist" src="https://raw.githubusercontent.com/nikkozu/nikkozu/main/buttons.png"
    width=120" height="40">
 </a>
